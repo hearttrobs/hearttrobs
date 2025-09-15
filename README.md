@@ -9,3 +9,6 @@
 <p align="center">$\color{#4d5d12}{\text{ ⸝⸝ I mostly speak spanish, so i talk really slowly in english ⸝⸝ }}$
 <p align="center"/> <img src="https://files.catbox.moe/lnh6t9.gif" width="300">
 <p align="center"/> <img src="https://files.catbox.moe/o9eqku.gif" width="500">
+
+#
+<p align="center"/> <img src="https://files.catbox.moe/6qug8a.gif" width="500">
