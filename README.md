@@ -12,3 +12,6 @@
 
 #
 <p align="center"/> <img src="https://files.catbox.moe/6qug8a.gif" width="500">
+<p align="center">$\color{#a6b31b}{\text{ ゛ ⸝⸝.ᐟ  ⋆ See strawpage for fandomsᵎ!ᵎ}}$ <img src="https://files.catbox.moe/50v0z3.gif" width="50">
+
+![](https://files.catbox.moe/7r6mp5.png)
