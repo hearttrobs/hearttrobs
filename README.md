@@ -1,16 +1,17 @@
-![](https://files.catbox.moe/fief11.png)
-# <p align="center"> <img src="https://files.catbox.moe/55wgam.gif" width="630">
-<p align="center"> <img src="https://files.catbox.moe/mo0nm6.gif" width="500">
-<p align="center"/> <img src="https://files.catbox.moe/o9eqku.gif" width="500">
-<p align="center">$\color{#4d5d12}{\text{ ·   he ’ him ⸝⸝ 15 yrs 𐂯 . • ⠀ .  ° •}}$
-<p align="center">$\color{#648a36}{\text{── .✦ multifandom and multishipping .✦ ──}}$
-<p align="center">$\color{#a6b31b}{{𝗟𝗹𝗼𝘆𝗱‎ 𝗳𝗶𝗰𝘁𝗸𝗶𝗻}}$ <img src="https://files.catbox.moe/50v0z3.gif" width="50">
-<p align="center">$\color{#648a36}{\text{dni if you don't like dear evan hansen /j}}$
-<p align="center">$\color{#4d5d12}{\text{ ⸝⸝ I mostly speak spanish, so i talk really slowly in english ⸝⸝ }}$
-<p align="center"/> <img src="https://files.catbox.moe/o9eqku.gif" width="500">
+![](https://files.catbox.moe/6mpwj4.png)
+# <p align="center"> <img src="https://files.catbox.moe/ib7les.png" width="500">
+<p align="center"> <img src="https://files.catbox.moe/2unm0k.gif" width="500">
+<p align="center"/> <img src="https://files.catbox.moe/tdpm4y.gif" width="300">
+<p align="center">$\color{#a3a67f}{\text{ ·   he ’ him ⸝⸝ 15 yrs  . • ⠀ .  ° •}}$
+<p align="center">$\color{#979884}{\text{── .✦ multifandom and multishipping .✦ ──}}$
+<p align="center">$\color{#c8b86a}{{𝗟𝗹𝗼𝘆𝗱‎ 𝗳𝗶𝗰𝘁𝗸𝗶𝗻}}$ <img src="https://files.catbox.moe/wurqd2.gif" width="50">
+<p align="center">$\color{#979884}{\text{dni if you don't like dear evan hansen /j}}$
+<p align="center">$\color{#a3a67f}{\text{ ⸝⸝ I mostly speak spanish, so i talk really slowly in english ⸝⸝ }}$
+
 
 #
-<p align="center"/> <img src="https://files.catbox.moe/6qug8a.gif" width="500">
-<p align="center">$\color{#a6b31b}{\text{ ゛ ⸝⸝.ᐟ  ⋆ See strawpage for fandomsᵎ!ᵎ}}$ <img src="https://files.catbox.moe/50v0z3.gif" width="50">
+<p align="center"/> <img src="https://files.catbox.moe/zgyjmt.gif" width="400">
+<p align="center">$\color{#a3a67f}{\text{ ゛ ⸝⸝.ᐟ  ⋆ See strawpage for fandomsᵎ!ᵎ}}$ <img src="https://files.catbox.moe/6hp0by.gif" width="80">
 
-![](https://files.catbox.moe/7r6mp5.png)
+![](https://files.catbox.moe/ndo79h.png)
+
